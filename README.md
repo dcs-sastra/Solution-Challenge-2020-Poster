@@ -1,1 +1,1 @@
-# SolutionChallengePoster
+# Solution Challenge Poster
