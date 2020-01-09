@@ -1,1 +1,1 @@
-# Solution Challenge Poster
+# Solution Challenge 2020 Poster
